@@ -4,7 +4,7 @@
 
 **growth Mindset:_The beliefe that you can develop your own fundemental abilities._**
 
-**Saying that you~~cant develop yourself is wrong.~~**
+**Saying that you ~~cant develop yourself is wrong.~~**
 
 ***For me i do that by:***
 1. Being positive.
