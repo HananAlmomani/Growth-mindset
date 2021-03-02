@@ -11,4 +11,5 @@
 2. searching for self development.
 3. improving my self confident and self estem.
 
+![Owr Amazing Mind](https://wp.technologyreview.com/wp-content/uploads/2019/07/gettyimages-932729844arxivbrain-10.jpg)
 
